@@ -1,1 +1,2 @@
 # mynode
+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
